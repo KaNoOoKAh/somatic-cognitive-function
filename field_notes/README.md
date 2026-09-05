@@ -69,3 +69,11 @@ To evaluate if the speaker is executing real-time cognitive processing or passiv
 2.  **Dynamic Material Synthesis (Active Memory Mapping):**
     *   **Mechanism:** The speaker scans open lab pages, live diagrams, or shifting visual fields (e.g., active iNaturalist geographic maps) and uses those visual anchors as prompts to synthesize ...
     *   **Data Profile:** High pacing variability, spontaneous colloquial interruptions, real-time analogies (e.g., the "Pac-Man" memory pruning metaphor), and personal anecdotal integration (e.g....
+
+#### Context & Intent 
+
+Any experiments, practices, or somatic exercises mentioned in this repository — whether conducted by myself or by peers — are personal in nature. Their purpose is to support individual health, recovery, and well‑being, and they are not part of any formal research initiative.
+
+All observations recorded here are simply observations, documented after the fact. My presence at any location is for private and personal reasons, and not for active research. Any somatic exercises, pressure‑shift practices, or environmental interactions occur naturally during personal routines aimed at getting healthy again.
+
+No staged experiments, directed studies, or intentional research activities are being carried out.
