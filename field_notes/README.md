@@ -1,5 +1,12 @@
 # Field Notes
 
+#### Purpose of Observations
+All field notes and entries in this repository are observations only. They document somatic patterns, environmental interactions, and cross‑species behaviors as they naturally occur.
+
+My visits to any location mentioned in these notes are private and personal, and are not conducted for the purpose of active research. Any observations recorded here were made incidentally, after the fact, and are included solely for documentation, reflection, and continued inquiry.
+
+No part of this repository implies intentional experimentation, staged conditions, or research‑driven travel. All observations are natural, non‑invasive, and ethically conducted.
+
 ## Overview
 
 This folder is dedicated to tracking global events, observation data, and governmental responses across different civilizations. The goal is to collect structured research, assess real-time patterns, and document observations in a systematic way.
