@@ -15,8 +15,8 @@ Subject engaged in deliberate ambulatory movement with sustained attention to pr
 ### Important Reminder 
 
 The force being applied is just dead weight. The leg is in a neutral position at different angles, the energy building up is slow. 
-I DO NOT know if I am doing it correctly. 
-I am trying to figure out where the energy is coming from. Once I can safely figure that out I will attempt to provide myself with a stable constant supply while charging different areas of my body. 
+
+I was not trying to create or build energy from anywhere on my upper body on this occasion. 
 
 ---
 
