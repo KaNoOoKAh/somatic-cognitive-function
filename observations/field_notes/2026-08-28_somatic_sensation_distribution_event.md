@@ -33,6 +33,4 @@ The ability to modulate sensation suggests high interoceptive control and active
 The contrast between anterior and posterior sensation may indicate differential engagement of muscle chains or fascia networks.
 
 ## Plain-Language Description
-This note describes a body sensation that became noticeable during a bathroom-related moment. The feeling started in the lower back area and spread upward through the spine, while also traveling down both legs. The sensation stayed around for a little time afterward and could be intentionally made stronger, weaker, or moved toward different parts of the body. Sensation of the activated areas was increased.
-
-
+In simple terms, this note describes a body sensation that became noticeable during a bathroom-related moment. The feeling started in the lower back area and spread upward through the spine, while also traveling down both legs. It felt much stronger when using the back side of the body than when using the front side. The sensation stayed around for a long time afterward and could be intentionally made stronger, weaker, or moved toward different parts of the body.
