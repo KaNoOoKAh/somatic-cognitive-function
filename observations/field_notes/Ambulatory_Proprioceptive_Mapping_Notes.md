@@ -1,0 +1,7 @@
+Date: September 6th
+the energy building up in my right foot that continued to stack itself higher and higher, was forming in the area of concentration. I was not using my brain or other muscle groups.
+
+I was also not using downward weighted pressure. the only pressure I was actually applying was to stay standing. **Or keep my bones from just collapsing. I’ve noticed that some joints or bones are not able to hold themselves up. - you’ll understand the more you practice. Unless I do certain exercises. 
+ - I’ll leave this here until I make a real/new note for this
+
+ - The more I practice, the more it feels like different areas of my body are not connected with each other. Using your bones to move is different then how we normally move. I don’t want to start scaring people if they do attempt some of the same exercises. so I will not be adding certain observations in this public file.
